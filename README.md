@@ -1,1 +1,2 @@
-### 🟠inking with portals. Now you're th🔵
+I know a lot about software development,
+And a little about everything else.
